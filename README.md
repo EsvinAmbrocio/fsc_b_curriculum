@@ -1,1 +1,0 @@
-# fsc_b_curriculum
